@@ -1,5 +1,3 @@
-# for her
+for say hi
 
-code from vr to klaten gurl yang tersayang.
-
-
+stat link : https://s.stis.ac.id/greetings
